@@ -1,4 +1,4 @@
-# Story of Phena & Narryok#
+# Story of Phena & Narryok #
 ## Chapter.4 逃亡 *Escape* ##
 
 Xoit 首都。
